@@ -9,8 +9,8 @@
 
 
 #### ***以下为百度对信息素养做出的解释***
+[百度](https://baike.baidu.com/item/%E4%BF%A1%E6%81%AF%E7%B4%A0%E5%85%BB/937143?fr=aladdin)
 
-[](https://baike.baidu.com/item/%E4%BF%A1%E6%81%AF%E7%B4%A0%E5%85%BB/937143?fr=aladdin)
 
 
 
